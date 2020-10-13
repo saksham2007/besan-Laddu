@@ -1,0 +1,1 @@
+Sugar,Water,Ghee,Tagar,Chickpea Flour,Muskmelon Seeds,Cardamoms,Nutmeg,Turmeric powder
